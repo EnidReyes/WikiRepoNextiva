@@ -1,1 +1,1 @@
-Aqui es donde enid hace experimentos, no reire plis.
+Aqui es donde enid hace experimentos, no reirse plis.
